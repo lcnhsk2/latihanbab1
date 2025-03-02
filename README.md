@@ -1,0 +1,2 @@
+# latihanbab1
+LCN HSK2 LATIHAN BAB 1
